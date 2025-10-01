@@ -1,3 +1,8 @@
+---
+title: "The Unreachable Fortress — Case Study in Avoidant Narcissism"
+description: "An essay analyzing a high-intensity toxic relationship and the psychology of fantasy bonding, future-faking, and avoidance."
+---
+
 ***
 
 ### **The Unreachable Fortress: A Case Study in Avoidant Narcissism and the Co-Creation of Fantasy**
